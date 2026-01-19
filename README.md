@@ -1,7 +1,7 @@
 # Hi there, I'm Egehan Keskin 👋
 
 ### Artificial Intelligence & Machine Learning Student
-[Email](mailto:egehan.16keskin@gmail.com) • [LinkedIn](www.linkedin.com/in/egehan-keskin-) • [Instagram](https://instagram.com/egehann_Keskinn)
+[Email](mailto:egehan.16keskin@gmail.com) • [LinkedIn](https://www.linkedin.com/in/egehan-keskin-120470370?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BVu7%2BJRjGQ9mj%2B1gmeap7bA%3D%3D) • [Instagram](https://instagram.com/egehann_Keskinn)
 
 ---
 
